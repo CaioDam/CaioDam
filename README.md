@@ -2,7 +2,7 @@
 
 <br>
 
-📘 Atualmente no 3° período de S.I
+📘 Atualmente no 4° período de S.I
 
 <br>
 
